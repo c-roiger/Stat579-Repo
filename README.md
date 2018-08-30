@@ -7,3 +7,5 @@ About Charlotte Roiger:
 - I failed my first calculus class in high school but who's laughing now Mr. H
 - I stay organized by utilizing tools like Google calendar, Google Keep, and setting 76 alarms on my phone.
 - Cinnamon cronch. 
+
+Cinnamon crunch is good. Now I want cereal for dinner 
